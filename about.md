@@ -1,1 +1,1 @@
-I'm Ashanti. Chris thinks I'm a great student!
+I have developed a love for coding!
